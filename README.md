@@ -1,0 +1,1 @@
+# oryantasyon-f-nal-odev
